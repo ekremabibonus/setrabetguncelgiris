@@ -7,9 +7,9 @@
 <body>
     <h1>Setrabet Güncel Giriş | En Yeni ve Güvenilir Adres</h1>
     <p>
-        <a href="https://tinyurl.com/setrabetgncl">SETRABET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a>
-        <a href="https://tinyurl.com/setrabetgncl">SETRABET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a>
-        <a href="https://tinyurl.com/setrabetgncl">SETRABET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a>
+        <a href="https://tinyurl.com/setrabetgncl">SETRABET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a><br>
+        <a href="https://tinyurl.com/setrabetgncl">SETRABET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a><br>
+        <a href="https://tinyurl.com/setrabetgncl">SETRABET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a><br>
         <a href="https://tinyurl.com/setrabetgncl">SETRABET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a>
     </p>
     <h2>Setrabet Giriş Adresi | En İyi Bahis Deneyimi</h2>
